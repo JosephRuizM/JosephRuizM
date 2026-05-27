@@ -2,7 +2,7 @@
 # Hi there! I'm Joseph Ruiz Marenco 👋
 
 ### Systems Engineer & AI Backend Architect  
-**San José, Costa Rica** | `jogy.ruiz@gmail.com` | [LinkedIn](https://linkedin.com)
+**San José, Costa Rica** | `jogy.ruiz@gmail.com` | [LinkedIn](https://www.linkedin.com/in/joseph-ruiz-marenco/)
 
 ---
 
