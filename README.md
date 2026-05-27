@@ -80,3 +80,4 @@ My core focus lies in building enterprise-grade software architectures, managing
 
 * **Email**: jogy.ruiz@gmail.com
 * **LinkedIn**: [://linkedin.com](https://www.://linkedin.com-68153737b/)
+* * **Number, whatssapp**: (506)8940-5386
